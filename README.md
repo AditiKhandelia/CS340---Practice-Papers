@@ -1,1 +1,1 @@
-These were all publicly availbale worksheets. My solutions may be completely inaccurate and idiotic :)
+These were all publicly available worksheets. My solutions may be completely inaccurate and idiotic :)
